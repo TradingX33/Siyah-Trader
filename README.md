@@ -1,4 +1,4 @@
-### 👋 Hi, I'm @Siyah-Trader
+### 👋 Hi, I'm @TradingX33
 
 I'm a beginner developer, just starting my adventure into the world of coding. I'm passionate about learning and building new things.
 
